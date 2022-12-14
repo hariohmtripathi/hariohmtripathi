@@ -6,7 +6,7 @@
 
 - 💬 Ask me about ... JAVA, Data Structures and Algorithms
 
-- 💫 I have interest in listening to podcast and watching travelling vlogs.
+- 💫 I have interest in listening to podcast and watching travelling vlogs
 
 - 📫 How to reach me: ... tripathihari2001@gmail.com
 
