@@ -10,7 +10,7 @@
 
 - 📫 How to reach me: ... tripathihari2001@gmail.com
 
-- Portfolio: ... hariohmtripathi.github.io/
+- Portfolio: ... hariohmtripathi.github.io
 
 
 ## Social
